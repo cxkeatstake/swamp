@@ -1,1 +1,2 @@
-![](https://media.discordapp.net/attachments/1022642368106725399/1334628042689089577/80cf88ceba9e942b03d1481109f74cd1.jpg?ex=679d38b9&is=679be739&hm=7499ba46f1e8af9b6c13fa035c57e76e5eba47e8568f239e7bfd2d49a15a1bb0&=&format=webp)
+![](https://media.discordapp.net/attachments/1022642368106725399/1343592796673675326/8de3f8ba302b2259b4d9e585acea4001.jpg?ex=67bdd5cd&is=67bc844d&hm=5063b39d23b6bdf4bfc6ffabc71d3a2b55925967ba2ab6533e6964cbc6a8f6fe&=&format=webp&width=518&height=607)
+^ literally me
